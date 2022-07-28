@@ -10,4 +10,4 @@ The worst feature for me will be the one related to network since I never tried 
 
 Dunno why i'm actually typping this since no one should ever be reading this but meh
 
-If anyone appart from read this please close my computer and return it to me i surely forgave it somewhere.
+If anyone appart from read this please close my computer and return it to me i surely forgot it somewhere.
